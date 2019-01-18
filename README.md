@@ -1,0 +1,2 @@
+# NC
+studying （follow GIA）
